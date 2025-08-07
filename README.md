@@ -29,4 +29,4 @@ we were called to college 1:30 p.m. there was  a lecture about motor sports and 
 # day 5 [6 August 2025]
 
 on this day there was  a lecture by Dr Parminder singh (dean- students welfare committee) he told us about various committees in college and various practices to ensure all round development of students.
- then there was an expert lecture by Mr manpreet singh who is a fitness coach and has  participated in national level bodybuilding competitions . he told us about fitness ,bodybuilding, it's difference and steps we can take to be fit and healthy . he also responded to various doubts of students about workout and diet. 
+ then there was an expert lecture by Mr manpreet singh who is a fitness coach and has  participated in national level bodybuilding competitions . he told us about fitness ,bodybuilding, it's difference and steps we can take to be fit and healthy . he also responded to various doubts of students about workout and diet. then there was a lecture by brigadier P.S. Cheema sir he told us about life in army value of discipline in life and importance of education. 

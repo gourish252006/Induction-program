@@ -10,6 +10,8 @@ we visited various labs and got information about the labs and their functioning
 
 On this day ,we reached the college auditorium at 9 a.m. there was an expert lecture by Dr.Priya Darshini mam on the topic universal human values.It was a meaningful discussion about how to be happy and prosperous and various steps we can take to fulfil this desire .Then there was a lecture by Dr.Arvind Dhingra sir who told us about various societies for engineers some of which were college level an some were national level .Then after the break there were proficiency tests of English and mathematics.The tests were conducted by our seniors who were helpful and co operative . After test they guided us about various aspects of college. 
 
-#day 3 [4 August 2025]
+# day 3 [4 August 2025]
 
-we reached college auditorium ,where we got introduction to causmic club.
+we reached college auditorium ,where we got introduction to causmic club.we were told about various functions of causmic club. we also came to know that the induction program was also being managed by causmic club.Then there was Second lecture of Dr Priya Darshini Mam  on Universal human values .the lecture was about our aspirations of being happy and our efforts towards it . I was very inspiring lecture and we got  a lot to learn from the lecture. After break we attend the English lecture in classroom. our English teacher was Prof.astik sharma. After introduction of students he told us about need of effective communication and role of English in professional conversation skills needed as an engineer. then there was p2p lecture .we were taught about basic coding by our seniors who took our classes. 
+
+# day 4 [

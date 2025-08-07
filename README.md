@@ -1,4 +1,4 @@
-3# Induction-program
+# Induction-program
 Gourish Kumar sharma.                                         B.tech ECEbranch
 # day1 [30 July 2025]
 

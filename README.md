@@ -1,4 +1,4 @@
-# Induction-program
+3# Induction-program
 Gourish Kumar sharma.                                         B.tech ECEbranch
 # day1 [30 July 2025]
 
@@ -14,4 +14,10 @@ On this day ,we reached the college auditorium at 9 a.m. there was an expert lec
 
 we reached college auditorium ,where we got introduction to causmic club.we were told about various functions of causmic club. we also came to know that the induction program was also being managed by causmic club.Then there was Second lecture of Dr Priya Darshini Mam  on Universal human values .the lecture was about our aspirations of being happy and our efforts towards it . I was very inspiring lecture and we got  a lot to learn from the lecture. After break we attend the English lecture in classroom. our English teacher was Prof.astik sharma. After introduction of students he told us about need of effective communication and role of English in professional conversation skills needed as an engineer. then there was p2p lecture .we were taught about basic coding by our seniors who took our classes. 
 
-# day 4 [
+# day 4 [ 5 August 2025]
+
+we were called to college 1:30 p.m. there was  a lecture about motor sports and it's importance and benefits to engineering students and how various branches contribute to F1 racing . After that there was a lecture by Mrs Shaffy Makkar about millets as super foods.  we were told about various types of millets and their benefits to us .
+
+# day 5 [6 August 2025]
+
+on this day there was  a lecture by Dr Parminder singh (dean- students welfare committee) he told us about various committees in college and various practices to ensure all round development of students. then there was an expert lecture by Mr manpreet singh who is a fitness coach and has  participated in national level bodybuilding competitions . he told us about fitness ,bodybuilding, it's difference and steps we can take to be fit and healthy . he also responded to various doubts of students about workout and diet. 

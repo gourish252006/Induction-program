@@ -2,10 +2,10 @@
 Gourish Kumar sharma.                                         B.tech ECEbranch
 # day1 [30 July 2025]
 
-First all the students went to college gurdwara sahib.There shabd Kirtan was going on.after taking refreshments we went to college auditorium.
-There the college staff addressed students. Then the hod of applied sciences Ms harpreet kaur addressed students.
-Then special guest came to stage an told students about nankana sahib educational trust and it's role in establishment of gndec .
- Then there was break for 1.5 hours .We explored various areas of college during break .
+First all the students went to college gurdwara sahib.There shabd Kirtan was going on.after taking refreshments we went to college auditorium.<br>
+There the college staff addressed students. Then the hod of applied sciences Ms harpreet kaur addressed students.<br>
+Then special guest came to stage an told students about nankana sahib educational trust and it's role in establishment of gndec .<br>
+ Then there was break for 1.5 hours .We explored various areas of college during break .<br>
 After break students headed by volunteers went for department visit where 
 we visited various labs and got information about the labs and their functioning.
 
